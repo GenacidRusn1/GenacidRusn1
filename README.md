@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GenacidRusn1
-- 👀 I’m interested in lbftgewfgrtgtehwegf
+- 👀 I’m interested in fjmtdfjtyjn
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on .trregf
 - 📫 How to reach me ...efdsrweafv
