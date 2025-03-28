@@ -2,7 +2,7 @@
 - 👀 I’m interested in fjmtdfjtyjn
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on hyugiop
-- 📫 How to reach me ...ygtrfd67uygyij
+- 📫 How to reach me ...mmkivgesrhytjnyrsrjt5hyghj
 - 😄 Pronouns: ...gf,bjibdth
 - ⚡ Fun fact: game it's live
 GenacidRusn1/GenacidRusn1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
