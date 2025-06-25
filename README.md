@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GenacidRusn1
 - 👀 I’m interested in fjmtdfjtyjn
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on frcviyhuj
+- 💞️ I’m looking to collaborate on bguyhjk
 - 📫 How to reach me ...xsawertdfyguj
 - 😄 Pronouns: ...ngfymndhgm
 - ⚡ Fun fact: game it's live
